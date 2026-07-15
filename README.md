@@ -6,6 +6,5 @@
 LINK MOTOGP LIVE 👇
 
 LINK 1: https://tinyurl.com/Mot0gP
-LINK 2: https://tinyurl.com/Mot0gP1
 
 ✔️ Malaysia/Indonesia/Singapore
